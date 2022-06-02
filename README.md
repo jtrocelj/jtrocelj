@@ -1,7 +1,6 @@
 #### Hi there 👋, my name is Jorge
 ![](https://media4.giphy.com/media/qgQUggAC3Pfv687qPC/giphy.gif?cid=ecf05e47koi0uonb5y6ef1bunsj3akdpv0jnvfn4emcy9bhr&rid=giphy.gif&ct=g)
 
-![GitHub streak stats](https://github-readme-streak-stats.herokuapp.com/?user=jtrocelj)  
 - 📫 How to reach me: ... 
 
 
