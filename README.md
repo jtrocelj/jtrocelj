@@ -13,5 +13,5 @@
 🔗 **GitHub**: [github.com/jtrocelj](https://github.com/jtrocelj)  
 🔗 **LinkedIn**: [linkedin.com/in/jorge-trocel-justiniano](https://www.linkedin.com/in/jorge-trocel-justiniano-9b08231b2/)  
 🔗 **Instagram**: [@iam_jorgetj](https://www.instagram.com/iam_jorgetj/)  
-🔗 **Portfolio**: [jorgetroceljustiniano.web.app/](https://jorgetroceljustiniano.web.app/)]
+🔗 **Portfolio**: [jorgetroceljustiniano.web.app/](https://jorgetroceljustiniano.web.app/)
 📩 Feel free to **reach out**—always open to collaboration and networking! 🚀
